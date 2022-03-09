@@ -1,4 +1,4 @@
 @BaronArkonis
-building anything and everything
+is building anything and everything
 
 baronarkonis@protonmail.com
